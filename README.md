@@ -12,10 +12,8 @@ I'm 21 years old, currently 3rd year - College Student from Technological Instit
 * 🧠  I'm learning about my college journey
 * 🤝  I'm open to collaborating on with my schoolmates, classmates, and other organization
 
-
-![cinnamoroll-sanrio-dance](https://github.com/rishmdc/CPE-019---EMTECH-2/assets/157874924/f3aab2f3-8776-4b03-b7c4-a031c7882ca8)
+![picgifs-cinnamoroll-6923](https://github.com/rishmdc/CPE-019---EMTECH-2/assets/157874924/5dba7b35-4d6e-4738-af42-b976cc7a514d)
   
-
 ### Skills
 
 
