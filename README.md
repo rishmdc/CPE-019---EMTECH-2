@@ -12,6 +12,10 @@ I'm 21 years old, currently 3rd year - College Student from Technological Instit
 * 🧠  I'm learning about my college journey
 * 🤝  I'm open to collaborating on with my schoolmates, classmates, and other organization
 
+
+
+  
+
 ### Skills
 
 
